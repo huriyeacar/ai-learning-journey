@@ -43,6 +43,6 @@ Progress is tracked weekly using a Notion board (available upon request).
 With a background in Electrical & Electronics Engineering and 5+ years of experience in tech product/project management, I’m passionate about combining structure, creativity, and technology to deliver real value.
 
 Let’s connect!  
-[LinkedIn](https://www.linkedin.com/in/...) | [Email](mailto:your.email@example.com)
+[LinkedIn](https://www.linkedin.com/in/huriye-acar-51ba5bb4/) | [Email](mailto:huriyeacar@aol.com)
 
 
